@@ -1,0 +1,5 @@
+- 👋 hi im mars
+- 👀 im interested in art and creating stuffs
+- 🌱 im currently learning coding ;-;
+- 💞️ im looking to collab on nothing stay away
+- 📫 how to reach me: figure it out
